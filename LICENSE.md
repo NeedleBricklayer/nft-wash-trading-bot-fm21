@@ -1,4 +1,4 @@
-# 
+# smart nft wash trading bot | collection-scanning + multi-chain-support is the best nft wash trading bot, featuring collection-scanning and multi-chain-support. Fast, smart, and
 
 
 
